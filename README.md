@@ -1,5 +1,5 @@
 Hello! I’m @TheRealGecko
 
-I don't have that much to say.
+TheGecko was taken.
 
 Have a great day!
